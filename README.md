@@ -6,10 +6,11 @@
 
 
 
-    The Civil Engineering division of St. Joseph’s Centre for Industrial Consultancy believe in providing value-added construction
-    services to our customers by creating a successful partnership with them throughout the construction process. Our highly qualified,
-    theoretically equipped as well as practically experienced staff uphold the idea of creating the most economical and safest design 
-    by using the most advanced computer packages, rather than using the traditional thumb rule design methodology.
+    The Civil Engineering division of St. Joseph’s Centre for Industrial Consultancy believe in providing 
+    value-added construction services to our customers by creating a successful partnership with them
+    throughout the construction process. Our highly qualified, theoretically equipped as well as practically 
+    experienced staff uphold the idea of creating the most economical and safest design by using the most
+    advanced computer packages, rather than using the traditional thumb rule design methodology.
     
     
 <h3>CONTACT US</h3>
