@@ -20,3 +20,6 @@ Fr. Dr. Bennet Kuriakose
 Mobile Number: +91 9380294641
 
 Email: bennet.kuriakose@sjcetpalai.ac.in
+
+
+![download](https://user-images.githubusercontent.com/82531317/192145205-fe9157ba-ae14-4616-9c96-f0fb371746eb.jpg) ![download (1)](https://user-images.githubusercontent.com/82531317/192145277-4150cce7-4394-4ce2-913b-1244f57b15b3.jpg) ![download (2)](https://user-images.githubusercontent.com/82531317/192145353-eed66156-e06e-4e96-8c68-a697d77e505d.jpg)
